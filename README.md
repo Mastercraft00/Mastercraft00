@@ -1,5 +1,7 @@
 # 💫 About Me:
-🔭 I’m currently working on nothing right now<br>👯 I’m looking to collaborate with Server/company's to fill there dream<br>🤝 I’m looking for help/work together with any developers<br>🌱 I’m currently learning about Ruby<br>💬 Ask me about anything :)<br>⚡ Fun fact I am cool/chill person
+🔭 I’m currently working on Top Security Protection Detail (NSA)<br>👯 I’m looking to collaborate with no one for right now<br>🤝 I’m looking for help/work together with any developers<br>🌱 I’m currently learning about High Level Detail<br>💬 Ask me about anything all good Buzy :D<br>⚡ Fun fact I am cool/chill person Best person to hangout with
+
+Привет Как твой день? Программист?
 
 ![image](https://github.com/user-attachments/assets/52b39715-222c-4d49-b2db-56b6e3f1722f)
 ![image](https://github.com/user-attachments/assets/e810a4db-a231-4893-9c23-1125d5bf485d)
@@ -26,9 +28,5 @@
 
 ---
 [![](https://visitcount.itsvg.in/api?id=Mastercraft00&icon=10&color=0)](https://visitcount.itsvg.in)
-
-  ## 💰 You can help me by Donating
-  [![BuyMeACoffee](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-ffdd00?style=for-the-badge&logo=buy-me-a-coffee&logoColor=black)](https://buymeacoffee.com/Mastercraft00) 
-
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
