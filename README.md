@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Top Security Protection Detail (NSA)<br>👯 I’m looking to collaborate with no one for right now<br>🤝 I’m looking for help/work together with any developers<br>🌱 I’m currently learning about High Level Detail<br>💬 Ask me about anything all good Buzy :D<br>⚡ Fun fact I am cool/chill person Best person to hangout with
+🔭 I’m currently working on ****cybersecurity systems****<br>👯 I’m looking to collaborate with ****anyone) Slavic****<br>🤝 I’m looking for help/work together with any developers<br>🌱 I’m currently learning about ****Hacking/anti hacking details****<br>💬 Ask me about ***anything***<br>⚡ Fun fact I am good with computer, and minecraft pvp.
 
 Привет Как твой день? Программист?
 
